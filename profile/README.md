@@ -2,7 +2,7 @@
 
 **Poppy Playtime Chapter 4 APK** ha llegado, y los amantes del horror no podrían estar más emocionados. Esta nueva entrega continúa la narrativa oscura y envolvente de la famosa serie de terror, sumergiendo a los jugadores en nuevos desafíos, criaturas aterradoras y secretos ocultos en cada rincón de la fábrica. En este artículo, te contamos todo lo que debes saber sobre el juego: sus características principales, cómo descargarlo y consejos para sobrevivir en esta aventura aterradora.
 
-### Descargar: [Poppy Playtime Chapter 4 APK](https://coimobile.io/es/poppy-playtime-chapter-3/)
+### Descargar: [Poppy Playtime Chapter 4 APK](https://coimobile.io/es/poppy-playtime-chapter-4/)
 ---
 
 ## **¿Qué es Poppy Playtime Chapter 4?**
